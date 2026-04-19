@@ -1,4 +1,4 @@
-# Myco Style Shadow Pro
+# Myco!!!!!.SKILL
 
 **这不仅仅是一个算法助手，它是你的代码双胞胎。**
 
